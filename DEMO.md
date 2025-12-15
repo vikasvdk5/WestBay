@@ -9,7 +9,8 @@ Please record a 3–5 minute walkthrough showing:
 ---
 
 📺 **Provide a Hosted Public Video Link (YouTube unlisted / Loom / MP4):**  MUST BE ON A HOS
-https://your.video.link.here
+https://www.loom.com/share/7819353054b54ffd89f49cbee61f40cd
+
 
 PLEASE DO NOT UPLOAD RAW VIDOE FILES. These submissions will not be reviewed.
 
